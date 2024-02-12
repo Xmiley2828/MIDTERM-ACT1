@@ -1,0 +1,2 @@
+# MIDTERM-ACT1
+LOGO
